@@ -21,7 +21,6 @@
 8. Pour half of the plain batter into the pan, then add the cocoa batter, and finally the remaining plain batter.  
 9. Preheat the oven to 180 °C (350 °F) for 5 minutes, then bake the cake at 170 °C (340 °F) for 30–40 minutes (adjust if needed) using the convection or fan setting.  
 
-
 ---
 
 ### **Cake au Beurre et Chocolat**  
