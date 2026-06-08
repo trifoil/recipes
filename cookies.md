@@ -1,4 +1,4 @@
-* 2 sticks (1 cup) unsalted butter, softened
+* 2 sticks (1 cup) unsalted butter, softened (226 g)
 * 1/2 cup granulated sugar
 * 1 cup light brown sugar (tightly packed)
 * 2 large eggs at room temperature
